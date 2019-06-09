@@ -1,2 +1,0 @@
-padaiyatchi HI
-padaiyatchi s
